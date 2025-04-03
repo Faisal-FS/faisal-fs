@@ -23,5 +23,4 @@ I'm a passionate Android developer with a strong background in building scalable
 
 ## 📬 Let's Connect!  
 💼 Open to freelance & collaboration opportunities!  
-📧 Reach me at **[your email]**  
 🌐 [LinkedIn Profile](https://www.linkedin.com/in/faisal-shahzad-40bb27140/)  
